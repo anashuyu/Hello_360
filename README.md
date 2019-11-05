@@ -4,20 +4,7 @@
 
 https://www.youtube.com/watch?v=m1BLsySgsHM MÓVIL DE UN REFUGIADO
 
-https://www.youtube.com/watch?v=P0k4_VVoC_E KOLD (BRASIL)
-https://www.youtube.com/watch?v=rPJ0q1j8n6U TH3VETURE (BRASIL) 
-  https://www.bbc.com/mundo/noticias-america-latina-46696706 + https://www.dw.com/pt-br/banco-mundial-alerta-para-aumento-da-pobreza-no-brasil/a-48217114 (aumento de pobreza en Brasil)
-  
-https://www.youtube.com/watch?v=gXeoac9s9-M MALEEK LOYD (CHINA)
-https://www.youtube.com/watch?v=RnCl7KNCFm8 JONATHAN PAUL (CHINA, SHANGAI)
-  https://www.excelsior.com.mx/global/sorprendente-china-disminuyo-su-contaminacion-durante-2018/1288791 (contaminación)
-  
 
-https://www.youtube.com/watch?v=ClC8aM5J2iM ANDRÉ DYNTAR (NEW YORK)
-https://www.youtube.com/watch?v=MRAZ_mSLXrA FILMSPEKTAKEL (NEW YORK) 
-
-https://www.youtube.com/watch?v=-mne6rcW8IQ RAMIN BORN (AFRICA)
-https://www.youtube.com/watch?v=gTEXJsw62iU MRBRYNNORTH (KENYA, AFRICA)
 
 DESCRIPCIÓN DEL PROYECTO:
 El objetivo de este proyecto, resumiendo, es hacer una comparación entre lo que nos muestran las redes sociales y la realidad. Como este tema es muy amplio, he decidido centrarme en el tema de los viajes. El proyecto no tiene intención de criticar este contenido, ya que yo no le veo nada malo en aspectos generales, sino concienciar de que todo los viajes que vemos por redes sociales (y las redes sociales en general) no muestran absolutamente todas las realidades. 
