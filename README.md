@@ -13,4 +13,4 @@ Con viajes me refiero al turimo "postureta" que encontramos en cualquier tipo de
 
 Aún y así este tipo de turismo se expande a cuaquier lugar donde este permitido llevar contigo una cámara 24 horas del día. Con eso me refiero a ciudades tan famosas como Nueva York; en este tipo de videos se nos muestran todos los lugares icónicos de la ciudad y ara alguien que no viva ahí puede parecer un sueño hecho realidad. Muchos neoyorkinos opinaran lo contrario, para ellos la ciudad también será estrés, suciedad, agobio... ya que ellos ven más allá de lo que nos muestran los vídeos. 
 
-En este proyecto, se mostrarán tanto los vídeos de redes sociales como datos/fotos/vídeos de las realidades no se muestran
+En este proyecto, se mostrarán tanto los vídeos de redes sociales como datos/fotos/vídeos de las realidades no se muestran. Para ello he buscado videos de diferentes videográfos y de diferentes lugares del mundo. Para las realidades, he buscado noticias/documentales/vídeos sobre los diversos temas preocupantes en cada país. He elegido un tema por cada país aunque ya es sabido que no se limitan a uno.
